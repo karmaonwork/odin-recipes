@@ -1,3 +1,3 @@
 # odin-recipes
-looking for ways to deal with this bs 
+Some Indian Snacks that i like to make and eat in free time :p
 
